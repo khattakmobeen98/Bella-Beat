@@ -1,1 +1,1 @@
-# Projects
+# Bella Beat Case Study
